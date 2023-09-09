@@ -15,7 +15,7 @@ That's the ONLY thing about being a slave. OK, if everyone's finished being stup
 
 ## It doesn't look so shiny to me.
 
-No! I want to live! There are still too many things I don't own! It doesn't look so shiny to me. I'm just glad my fat, ugly mama isn't alive to see this day. Soon enough. I'm sure those windmills will keep them cool.
+No! I want to life! There are still too many things I don't own! It doesn't look so shiny to me. I'm just glad my fat, ugly mama isn't alive to see this day. Soon enough. I'm sure those windmills will keep them cool.
 
 ![]()
 
